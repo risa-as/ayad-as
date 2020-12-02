@@ -1,3 +1,0 @@
-# ayad-as
-te
-as
